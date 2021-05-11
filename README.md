@@ -1,1 +1,0 @@
-# serial-killers-rule-the-world
